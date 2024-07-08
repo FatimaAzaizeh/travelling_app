@@ -1,0 +1,5 @@
+![travil](https://github.com/FatimaAzaizeh/travelling_app/assets/164844640/cc94a7fb-994c-4ecd-a388-93e013b8dcdf)
+![travil2](https://github.com/FatimaAzaizeh/travelling_app/assets/164844640/fc822ee1-7ef3-4f2b-a74c-04a4fbaf3e7b)
+![travil3](https://github.com/FatimaAzaizeh/travelling_app/assets/164844640/94198107-62ea-42a1-8c58-890d4630d1de)
+![travil4](https://github.com/FatimaAzaizeh/travelling_app/assets/164844640/3e476be3-4aeb-4623-8d82-1daabc94a654)
+![travil5](https://github.com/FatimaAzaizeh/travelling_app/assets/164844640/555cf7d6-36c2-42b7-ae00-b358ea7de95c)
